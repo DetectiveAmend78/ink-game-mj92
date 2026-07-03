@@ -1,4 +1,4 @@
-# 
+# secure Scripts for ink game offers the most advanced ink game Script, with auto-upgrade and custom skins. Perfect for dominating any match.
 
 
 
